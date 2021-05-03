@@ -1,2 +1,2 @@
 # global-climate-change
-<img width="797" alt="截圖 2021-05-03 下午10 08 37" src="https://user-images.githubusercontent.com/30995739/116886886-3882d880-ac5c-11eb-930e-4bb3bada997b.png">
+![哥倫布_2020期中_v3_芝瑋 pptx](https://user-images.githubusercontent.com/30995739/116887105-7c75dd80-ac5c-11eb-9239-a523f52a78b1.png)
